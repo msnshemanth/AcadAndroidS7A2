@@ -1,1 +1,0 @@
-# AcadAndroidS7A2
